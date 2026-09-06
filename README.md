@@ -59,12 +59,15 @@
 
 <p align="center">   </p>
 
+
+<p align="center"> random stamps </p>
+
 <div align="center">
 
   <img width="259" height="38" alt="image" src="https://64.media.tumblr.com/cd7dfcb5b43e0f3dfbb6933fefa076d4/bea578ccfee15413-fb/s250x400/6602353c9bd01c8538e97f39d7bedaf0f0437b61.gifv" />
 
 </div>
 
-<p align="center"> pfp by @dcmm1604 on pin , fan icon art by @schnowpimmy on pinterest and edited into pfp by @golfpinnie on pinterest </p>
-
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/2caf11ea-107f-4b0b-82d9-69ebb3219b6f" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a7854f99-2a26-4545-98a7-9ee977f25fa9" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/65876c36-b105-4e3b-a3fa-0df1bace2397" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f91bab0b-e8d0-4dd8-86ad-bbe9f1523bd1" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b813548f-9e22-444c-b7e6-21e35f0046fc" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/1347721c-f07a-404c-8512-9503a03b9375" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/6ef51348-31d5-460c-ad05-17fca7a1f30c" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/71c30d90-463d-4287-a08f-34eafbad5b64" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/db530180-09fb-4e09-88a4-49afa692ad40" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e0f8b7aa-8e5f-401a-aec7-c64c7636ab5e" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e43f465a-cf52-49fc-9a5c-caabc14ce181" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/4c3cc68b-fd2c-44e8-8b66-c8e7e171e052" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/ef73b97c-c4ae-4d1e-9bd4-155c7c36eebc" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/1e7be10f-7a02-4c58-ae7b-5cfc3373799c" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/cb93b407-4872-40be-96e6-03582dc159cb" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/cd9e413b-8e7f-452d-a5e0-5f4309799db9" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f7749f1a-5809-4286-bae1-5f9d93313a16" /> <img width="92" height="52" alt="image" src="https://github.com/user-attachments/assets/0f569813-7c9a-4667-a169-7e5ad73e0071" />
+
+<p align="center"> pfp by @dcmm1604 on pin , fan icon art by @schnowpimmy on pinterest and edited into pfp by @golfpinnie on pinterest </p>
