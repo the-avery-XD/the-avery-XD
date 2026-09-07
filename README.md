@@ -26,7 +26,7 @@
 
 <p align="center"> minor </p>
 
-<p align="center"> both of my strawpages are a work in progress </3 </p>
+<p align="center"> both of my strawpages are a work in progress 💔 </p>
 
 <div align="center">
 
