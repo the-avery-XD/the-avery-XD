@@ -52,6 +52,12 @@
 
 <div align="center">
 
+  [general info (strawpage)](https://averyxd-info.straw.page)
+
+<p align="center">   </p>
+
+<div align="center">
+
   [tumblr](https://www.tumblr.com/avryxd)
 
 <p align="center">   </p>
