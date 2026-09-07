@@ -98,7 +98,6 @@
 
 </div>
 
-<p align="center"> I DID A STUPID AND ACCIDENTALLY DELETED ALL THE STAMPS HERE... ILL COLLECT MORE SOON :o( </p>
 
 <div align="center">
 
