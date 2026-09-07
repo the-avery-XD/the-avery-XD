@@ -16,7 +16,7 @@
 
 <div align="center">
 
-  <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/10bab615-0d4b-4bc7-9583-3f73a69d0a8c" /> <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/ea0c90d1-31fb-45dd-900e-030bb84d2256" />
+  <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/8f9cd169-3157-42d4-91ab-55c2f392e303" /> <img width="26" height="16" alt="image" src="https://github.com/user-attachments/assets/ffb65a03-16db-4436-8b76-dce152948b20" />
 
 </div>
 
