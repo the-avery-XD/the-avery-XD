@@ -58,6 +58,13 @@
 
 <div align="center">
 
+  [pinterest](https://www.pinterest.com/ihaveahugecrushonyoufreddyfazb/)
+
+<p align="center">   </p>
+
+
+<div align="center">
+
   <img width="480" height="41" alt="image" src="https://64.media.tumblr.com/5d399ff78d56fe23344fe049719c00f6/2b48d6ae63a11ac5-f1/s2048x3072/3da8c6610353d7e538b6db55a60b6324955f463b.gifv" />
 
 </div>
