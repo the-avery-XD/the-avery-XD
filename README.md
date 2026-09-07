@@ -58,7 +58,7 @@
 
 <div align="center">
 
-  [pinterest](https://www.pinterest.com/ihaveahugecrushonyoufreddyfazb/)
+  [pinterest (WENT BACK TO MY OLD PINTEREST, OTHER PINTEREST ACCOUNT WONT BE POSTED ON ANYMORE!)](https://www.pinterest.com/ihaveahugecrushonyoufreddyfazb/)
 
 <p align="center">   </p>
 
