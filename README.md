@@ -1,4 +1,4 @@
-<p align="center"> YES IM THE PURSUER KIN PERSON IM JUST CHANGING THIS UP CAUSE I WANTED TO UPDATE THINGS AND CHANGE TEH AESTHETIC SO IT WAS MORE ME OK 🎀 also i changed my name back to avery cause i felt like it </p>
+<p align="center"> YES IM THE PURSUER KIN PERSON IM JUST CHANGING THIS UP CAUSE I WANTED TO UPDATE THINGS AND CHANGE THE AESTHETIC SO IT WAS MORE ME OK 🎀 also i changed my name back to avery cause i felt like it </p>
 
 <div align="center">
 
