@@ -24,7 +24,7 @@
 
 <p align="center"> they/all neos </p>
 
-<p align="center"> minor </p>
+<p align="center"> minor (14+) </p>
 
 <p align="center"> both of my strawpages are a work in progress 💔 </p>
 
