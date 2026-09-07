@@ -26,6 +26,8 @@
 
 <p align="center"> minor </p>
 
+<p align="center"> both of my strawpages are a work in progress </3 </p>
+
 <div align="center">
 
   [pronouns.cc](https://pronouns.cc/@avryXD)
