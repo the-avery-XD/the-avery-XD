@@ -100,4 +100,11 @@
 
 <p align="center"> I DID A STUPID AND ACCIDENTALLY DELETED ALL THE STAMPS HERE... ILL COLLECT MORE SOON :o( </p>
 
+<div align="center">
+
+  <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f997d818-e220-44c5-9a11-8732506faee6" /> <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e593833e-54df-4512-b46f-aefb9b7cb9e8" />
+
+
+</div>
+
 <p align="center"> pfp by @dcmm1604 on pin , fan icon art by @schnowpimmy on pinterest and edited into pfp by @golfpinnie on pinterest </p>
