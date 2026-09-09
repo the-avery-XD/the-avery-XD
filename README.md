@@ -22,7 +22,7 @@
 
 <p align="center"> call me avery or the name of any of my kins! </p>
 
-<p align="center"> they/all neos </p>
+<p align="center"> they/it/all neos </p>
 
 <p align="center"> minor (14+) </p>
 
