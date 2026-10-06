@@ -28,7 +28,7 @@
 
 <p align="center"> both of my strawpages are a work in progress 💔 </p>
 
-<p align="center"> what the macaroni and cheese is up with me and green characters </p>
+<p align="center"> what the macaroni and cheese is up with me and green characters i think im just green(????whar) </p>
 
 <div align="center">
 
