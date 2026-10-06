@@ -9,7 +9,7 @@
 <p align="center">    </p>
 
 <p align="center">
-  <img width="400" height="300" alt="image" src="https://github.com/user-attachments/assets/0fd919f8-5abb-450d-a227-dbda50ca7c04" />
+  <img width="400" height="325" alt="image" src="https://github.com/user-attachments/assets/0fd919f8-5abb-450d-a227-dbda50ca7c04" />
 </p>
 
 <p align="center"> " 𝘨𝘰𝘰𝘥 𝘮𝘰𝘳𝘯𝘪𝘯𝘨, 𝘮𝘪𝘴𝘵𝘦𝘳 𝘴𝘶𝘯𝘧𝘪𝘴𝘩! 𝘱𝘭𝘦𝘢𝘴𝘦 𝘵𝘦𝘢𝘤𝘩 𝘮𝘦 𝘢𝘭𝘭 𝘺𝘰𝘶𝘳 𝘸𝘢𝘺𝘴 <3 " </p>
