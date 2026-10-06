@@ -97,7 +97,7 @@
 
 <div align="center">
 
-  <img width="259" height="38" alt="image" src="https://64.media.tumblr.com/cd7dfcb5b43e0f3dfbb6933fefa076d4/bea578ccfee15413-fb/s250x400/6602353c9bd01c8538e97f39d7bedaf0f0437b61.gifv" />
+  <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/dab543ad-58f4-45a0-89d6-06de0041661f" />
 
 </div>
 
