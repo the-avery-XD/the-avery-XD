@@ -28,6 +28,8 @@
 
 <p align="center"> both of my strawpages are a work in progress 💔 </p>
 
+<p align="center"> what the macaroni and cheese is up with me and green characters </p>
+
 <div align="center">
 
   [pronouns.cc](https://pronouns.cc/@avryXD)
