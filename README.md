@@ -115,4 +115,4 @@
 
 </div>
 
-<p align="center"> pfp by @dcmm1604 on pin , fan icon art by @schnowpimmy on pinterest and edited into pfp by @golfpinnie on pinterest </p>
+<p align="center"> pfp by @dcmm1604 on pin , boombox graphic by @doomthusiast on pin
