@@ -117,4 +117,4 @@
 
 </div>
 
-<p align="center"> pfp by @dcmm1604 on pin , boombox graphic by @doomthusiast on pin
+<p align="center"> pfp by @dcmm1604 on pin , boombox graphic by @doomthusiast on tumblr
