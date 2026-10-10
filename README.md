@@ -62,7 +62,7 @@
 
 <div align="center">
 
-  [tumblr](https://www.tumblr.com/avryxd)
+  [tumblr for art](https://www.tumblr.com/something-more-interesting)
 
 <p align="center">   </p>
 
